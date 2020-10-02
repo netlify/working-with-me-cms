@@ -8,4 +8,6 @@ postsHeading: Netlifiers
 archiveButtonText: See all Netlifiers
 socialImage: ""
 ---
-WWM is a place for Netlifiers to share a little about themselves and how they like to work.
+A place for Netlifiers to share a little about themselves and how they like to work.
+
+Submit your own page so we can get to know you better!
