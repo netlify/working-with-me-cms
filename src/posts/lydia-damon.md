@@ -19,7 +19,7 @@ I'm an Aries ♈ and a [Type 7](https://www.enneagraminstitute.com/type-7) ("The
 
 The good: I'm optimistic, enthusiastic, and game to start things and get others to join.
 
-The not-so-good: Hate to say it, but follow-through can sometimes be a challenge 😬 (because I get so excited about the start of things) – I work to be aware and stay ahead of this, but please call me out if I have dropped a ball 🏀
+The not-so-good: Hate to say it, but follow-through can sometimes be a challenge 😬 (because I get so excited about the start of things and working on many things) – I work to be aware and stay ahead of this, but please call me out if I have dropped a ball 🏀
 
 I'm on the Continuous Onboarding/Growth pod: **Team Rocket** [🚀](https://emojis.wiki/rocket/#:~:text=Meaning%20of%20%F0%9F%9A%80%20Rocket%20Emoji,user%20is%20determined%20to%20fulfill.)
 
